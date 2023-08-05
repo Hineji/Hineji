@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hineji Silva
 - 👀 I’m interested in coding..fds
 - 🌱 I’m currently learning .dfgD
-- 💞️ I’m looking to collaborate on .
+- 💞️ I’m looking to collaborate on .pp
 - 📫 How to reach me .
 ondsddfds
 <!---c
