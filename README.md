@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding..fds
 - 🌱 I’m currently learning .dfgD
 - 💞️ I’m looking to collaborate on .ppfd,
-- 📫 How to reach me .
+- 📫 How to reach me .sad
 ondsddfds
 <!---c
 Hineji/Hineji is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
